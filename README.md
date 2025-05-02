@@ -1,2 +1,2 @@
-# Hotgirl
-https://sagorcmyk.github.io/Hotgirl/
+# Hotgirls
+https://sagorcmyk.github.io/Hot/
